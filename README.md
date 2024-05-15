@@ -3,3 +3,4 @@
 每天写一些废话
 怎么才能有钱
 everything will better
+不能分行了吗，每次看都是一行字
