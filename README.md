@@ -5,3 +5,4 @@
 everything will better
 不能分行了吗，每次看都是一行字
 就这样每天更新
+静静的听雨看风！
