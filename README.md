@@ -7,3 +7,4 @@ everything will better
 就这样每天更新
 静静的听雨看风！
 每天都有新鲜事
+做点什么好呢
