@@ -8,3 +8,4 @@ everything will better
 静静的听雨看风！
 每天都有新鲜事
 做点什么好呢
+看你能做社么
