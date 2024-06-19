@@ -3,3 +3,4 @@
 每天写一些废话
 怎么才能有钱
 everything will better
+功课是堵塞而
