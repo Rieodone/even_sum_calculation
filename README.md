@@ -5,3 +5,4 @@ everything will better
 每天重复做一件事，就能成功！
 分散资金，应该是看项目而不是看账户
 everything is ok
+好看好用，真好
