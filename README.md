@@ -6,3 +6,4 @@ everything will better
 分散资金，应该是看项目而不是看账户
 everything is ok
 好看好用，真好
+一定要坚持
