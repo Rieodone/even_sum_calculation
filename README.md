@@ -7,3 +7,4 @@ everything will better
 everything is ok
 好看好用，真好
 一定要坚持
+煤炭也是钱啊
