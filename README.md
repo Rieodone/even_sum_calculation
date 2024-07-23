@@ -2,3 +2,4 @@
 everything will better
 功课是堵塞而
 顺手能做的事情还是要早点做了
+有困难，解决困难！
